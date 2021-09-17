@@ -10,7 +10,7 @@
 
 - 🌱 I’m currently learning mostly Java and Oracle DB...
 - - I am still a newcommer in this world. I feel like I'm gettin whole new info every minute..
-- Hopefully I would become the head developer with my skiillls especially the ability understanding the logical ways of programming. 
+- - Hopefully I would become the head developer with my skiillls especially the ability understanding the logical ways of programming💚
 
 - 📫 Mail me 35heejungC@gmail.com or 13dltk@naver.com ! I check both mailboxes everyday🧡
 
