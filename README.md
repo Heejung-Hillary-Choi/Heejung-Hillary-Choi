@@ -4,9 +4,9 @@
 - - No, I don't admire Hillary Clinton, but, I usually mention her name when I introduce myself to others so that people-even a perfect stranger haahaha- can remember my name more easily💙  
 
 - 👀 I’m interested in Traveling and Developing new projects...
-- - I've been in Japan, Taiwan, China, Philiphine, and Austraila.
-- - I had lived in Sydney and Melbourne, AU... That was one of the most lovely times in my days. 
-- - Oh, my. I've never been to America or Europe, meanning entire continent.. Wisth to get there soooon without virus, without racism💜
+- - I've been in Japan, Taiwan, China, Philippines, and Austraila.
+- - I had lived in Sydney and Melbourne, AU... That was one of the loveliest times in my days. 
+- - Oh, my. I've never been to America or Europe, meanning the entire continent.. Wish to get there soooon without virus, without racism💜
 
 - 🌱 I’m currently learning mostly Java and Oracle DB...
 - - I am still a newcommer in this world. I feel like I'm gettin whole new info every minute..
